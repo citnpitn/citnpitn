@@ -4,5 +4,4 @@ Witam oto ja citnpitn (czytaj citynpityn)
 
 lubie placki.
                                                                                                                                            
-
-uwaga kamuś po ciebie idzie 0_0
+(prosze nie kopiuj moich projektów bo będę smutny)
