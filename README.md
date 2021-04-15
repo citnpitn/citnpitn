@@ -5,35 +5,4 @@ Witam oto ja citnpitn (czytaj citynpityn)
 lubie placki.
                                                                                                                                            
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-never gonna give you up!
-
 uwaga kamuś po ciebie idzie 0_0
